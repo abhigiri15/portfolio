@@ -1,1 +1,1 @@
-# portfolio
+I’m a UX/UI Designer with creative ideas and unique edge in empathizing with users and providing the best  experience through design. My experience has refined my problem-solving skills and user insights. I’m constantly seeking new ways to learn and grow through real-world experiences and lessons. My skills include user experience design, interaction design, user research, collaboration, problem-solving, share work experience and organization.# portfolio
